@@ -5,4 +5,4 @@ I have recently given workshops on how to write a statement of purpose for gradu
 
 - Many of the slides from this presentation were edited from the UCLA graduate program website
 
-How to write a research statement for faculty apps (9/13/2019 co-taught with Bobby Espinoza)
+[How to write a research statement for faculty apps (9/13/2019 co-taught with Bobby Espinoza)](Postdoc_Job_App_Workshop-Research_Statement2019.pdf)
